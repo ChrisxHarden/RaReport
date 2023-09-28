@@ -1,0 +1,1 @@
+[Slides for Sept 27](https://docs.google.com/presentation/d/1TP3DBDLmWecCLuLbwPdKhLaOlZhNaFtVyz_1VZKeTnk/edit?usp=sharing)
